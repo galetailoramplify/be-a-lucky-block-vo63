@@ -1,4 +1,4 @@
-#  
+#  rivals updated Script is the best rivals Script, featuring unlimited stamina and speed. Safe and powerful for all your needs.
 
 
 
